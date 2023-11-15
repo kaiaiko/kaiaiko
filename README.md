@@ -1,6 +1,11 @@
 ╔═══━━━─── • ───━━━═══╗
- ➤ Oi, me chamo Kai
- ➤ (3/4) TI
- ➤ Apenas código criado
- no curso.
+
+ ➤ Oi, me chamo @kaiaiko;
+ 
+ ➤ (3/4) TI;
+ 
+ ➤ Conta apenas para afins de 
+ 
+ trabalhos escolar.
+ 
 ╚═══━━━─── • ───━━━═══╝
